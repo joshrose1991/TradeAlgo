@@ -1,0 +1,1 @@
+Algo Trading started August 2024
